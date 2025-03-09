@@ -1,1 +1,1 @@
-# uhuhuh
+# STUKTUR DATA TUGAS
